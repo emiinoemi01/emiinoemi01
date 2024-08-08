@@ -6,7 +6,7 @@
 Here are some ideas to get you started:
 
 - tenho 15 anos.
-sou pianista.🎹
+ sou pianista.🎹
 jogadora de volei.🏐
 amo academia💪
 tenho um gato laranja e um cachorro🙌
