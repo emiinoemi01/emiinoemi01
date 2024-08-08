@@ -6,12 +6,12 @@
 Here are some ideas to get you started:
 
 - tenho 15 anos.
- sou pianista.🎹
-jogadora de volei.🏐
-amo academia💪
-tenho um gato laranja e um cachorro🙌
-tenho um iphone👅
-sou extrovertida👀
-amo ir para praia, amo ir pro rio de janeiro🏖️
-futuramente, serei dentista😆
+- sou pianista.🎹
+- jogadora de volei.🏐
+- amo academia💪
+- tenho um gato laranja e um cachorro🙌
+- tenho um iphone👅
+- sou extrovertida👀
+- amo ir para praia, amo ir pro rio de janeiro🏖️
+- futuramente, serei dentista😆
 
